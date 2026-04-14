@@ -1,0 +1,5 @@
+- Naming as dynamic structure
+- Agency and kink
+- Dominance as a coping mechanism for touch
+- Risk Assessment + Who to Trust
+- Hierarchical Loves
