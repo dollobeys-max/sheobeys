@@ -1,6 +1,9 @@
 ---
 title: Power exchange at a medium distance
 date: 2026-01-12
+tags:
+  - Power Exchange
+  - Polyamory
 ---
 
 *Two of my significant kink relationships are with people a couple of hours away, so I think a lot about the physical distance between us, and how we maintain a connection through it. If you're the sort of kinky person who likes the power exchange always on, at least a little bit, distance creates a hurdle to overcome.*
