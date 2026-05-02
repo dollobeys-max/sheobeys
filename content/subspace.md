@@ -68,7 +68,7 @@ tags:
 
 >*doll clings onto His shirt, and plays with the fabric with her thumb. all that she can manage bar looking. His eyes are on doll, proud and strong. hers flutter and water as she holds position.*
 
->*He lifts a hand, slowly, deliberately and clicks His fingers. drop. she slumps into Him. dool pools on her legs. He fixes her necklace, and keeps her there until the drinks arrive.* 
+>*He lifts a hand, slowly, deliberately and clicks His fingers. drop. she slumps into Him. drool pools on her legs. He fixes her necklace, and keeps her there until the drinks arrive.* 
 
 —
 
