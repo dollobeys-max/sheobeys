@@ -1,5 +1,6 @@
 ---
 title: she obeys
+date: 2026-05-02
 ---
 
 **I am Maker to My doll, Sir to My slave. For Me, intimacy is mediated through power, authority, ownership, and control, freely and enthusiastically surrendered. Before I even knew my sexuality, pictures of rubber-clad androgynes and stories of transformation and submission defined my teenage fantasies. As an adult, I stepped out into a queer and kinky world, building my confidence, seperating fantasies from desires, and finding others for whom this is a way of life. There is magic in the tools kink offers Me – to transform mundane life into something sacred with nothing but intention and play. I hope W/we can share the wonders of O/our deviance and perversion.**
