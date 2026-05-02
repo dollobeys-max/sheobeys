@@ -1,8 +1,7 @@
 ---
-title: Power exchange at a medium distance
+title: Medium Distance
 date: 2026-01-12
 tags:
-  - Power Exchange
   - Polyamory
   - doll
 ---
