@@ -8,25 +8,25 @@ tags:
   - doll
 ---
 
-*From the padded cell, I can hear the hum of the party upstairs. Laughter and movement. I'm not a part of it. Not anything right now. Just another pet being pulled around and used. When you first put the leather hood on me up there, I became aware of the eyes that might be looking. It doesn't matter who looks now.*
+>*From the padded cell, I can hear the hum of the party upstairs. Laughter and movement. I'm not a part of it. Not anything right now. Just another pet being pulled around and used. When you first put the leather hood on me up there, I became aware of the eyes that might be looking. It doesn't matter who looks now.*
 
-*The cuffs holding my arms are tight and comforting. My breaths are hot and deep. Each inhale pulls the hood in. I can make out pinhole shapes if I try, but I've closed my eyes and long given up. The vibrator attached to my cage has taken over.*
+>*The cuffs holding my arms are tight and comforting. My breaths are hot and deep. Each inhale pulls the hood in. I can make out pinhole shapes if I try, but I've closed my eyes and long given up. The vibrator attached to my cage has taken over.*
 
-*The door opens, and big hands begin to grope. Hard fingers push against my plug. My nipples are pinched and stroked. You give one of your familiar uh huhs. I’m warm and eager, wishing I could pull my arms around. You've only been gone minutes. Mindlessly, I raise my legs in the air, and let you press.*
+>*The door opens, and big hands begin to grope. Hard fingers push against my plug. My nipples are pinched and stroked. You give one of your familiar uh huhs. I’m warm and eager, wishing I could pull my arms around. You've only been gone minutes. Mindlessly, I raise my legs in the air, and let you press.*
 
-*Satisfied at the mess, you pull me to my feet, and onto a table. Legs apart. Silicone out. Metal in. You strap me down, and switch on the electro. Floating, so focused on you, listening, wanting to do good, waiting.*
+>*Satisfied at the mess, you pull me to my feet, and onto a table. Legs apart. Silicone out. Metal in. You strap me down, and switch on the electro. Floating, so focused on you, listening, wanting to do good, waiting.*
 
-*Going.* 
+>*Going.* 
 
-*I let go so easily with you. Your poise. How you read my squirms. The smile I can hear as I writhe and struggle and cum. You are huge. I am tiny.*
+>*I let go so easily with you. Your poise. How you read my squirms. The smile I can hear as I writhe and struggle and cum. You are huge. I am tiny.*
 
-*You stop humouring me to talk through the kit to another dom watching. Only then am I aware others are in the room, bar you. You talk about me like I'm not there.*
+>*You stop humouring me to talk through the kit to another dom watching. Only then am I aware others are in the room, bar you. You talk about me like I'm not there.*
 
-*The electro cranks up. The pain barely registers as the spasms roll on. I am focus, breaths, sensation. You keep me on the edge of orgasm until I stop panting and go limp.*
+>*The electro cranks up. The pain barely registers as the spasms roll on. I am focus, breaths, sensation. You keep me on the edge of orgasm until I stop panting and go limp.*
 
-*That's a good pet, you say, stroking my head through the hood. gooood pet. Pure elation. I cum again. Obvious words slip out. I’m cumming, Master. Thank you. Oh, you've cum again? aww.*
+>*That's a good pet, you say, stroking my head through the hood. gooood pet. Pure elation. I cum again. Obvious words slip out. I’m cumming, Master. Thank you. Oh, you've cum again? aww.*
 
-*You crank up the knobs. Words cease.*
+>*You crank up the knobs. Words cease.*
 
 —
 
