@@ -36,13 +36,13 @@ tags:
 
 — 
 
-*Your eyes are fully gone, baby, she says, sitting her thighs on my face. My arms are pinned. I daren't move, anyway. The hint I might get to touch her has me stuck. She shushes every whimper, and carefully places my body back to zero if I fuss. Her voice is so gentle, and her eyes so encouraging, but that doesn't stop the power in each graceful move, and the fear of failure if I break composure.*
+>*Your eyes are fully gone, baby, she says, sitting her thighs on my face. My arms are pinned. I daren't move, anyway. The hint I might get to touch her has me stuck. She shushes every whimper, and carefully places my body back to zero if I fuss. Her voice is so gentle, and her eyes so encouraging, but that doesn't stop the power in each graceful move, and the fear of failure if I break composure.*
 
-*I can hear each movement she makes from below. The fingers sliding in. Her soft breaths. Skin on skin. Finally, agonisingly, she lifts my arm, places the fingers in my open mouth to wet them, and lets me feel her. She rocks back and forth, with a tight grip on my wrist. It takes everything not to wriggle. She rides until the arm loses feeling.* 
+>*I can hear each movement she makes from below. The fingers sliding in. Her soft breaths. Skin on skin. Finally, agonisingly, she lifts my arm, places the fingers in my open mouth to wet them, and lets me feel her. She rocks back and forth, with a tight grip on my wrist. It takes everything not to wriggle. She rides until the arm loses feeling.* 
 
-*No, not quite right. she says, rolling off. I hold still. Eventually turning back, she lets me lick her sticky fingers instead, and watches me be still while she plays. My arms stay where she left them.* 
+>*No, not quite right. she says, rolling off. I hold still. Eventually turning back, she lets me lick her sticky fingers instead, and watches me be still while she plays. My arms stay where she left them.* 
 
-*When she finishes, she scoops me up into her chest, and tells me I’m perfect. I sob.* 
+>*When she finishes, she scoops me up into her chest, and tells me I’m perfect. I sob.* 
 
 —
 
@@ -54,21 +54,21 @@ tags:
 
 —
 
-*He orders for doll. the waiter looks confused. she stifles the words ‘thank you’, knowing that's not allowed. tension is everywhere. they know W/we are doing something weird. she can't look Him in the eye, knowing He can see her discomfort. knowing He is probably smiling. He moves a hand to her thigh, and squeezes.* 
+>*He orders for doll. the waiter looks confused. she stifles the words ‘thank you’, knowing that's not allowed. tension is everywhere. they know W/we are doing something weird. she can't look Him in the eye, knowing He can see her discomfort. knowing He is probably smiling. He moves a hand to her thigh, and squeezes.* 
 
-*Her body relaxes.*
+>*her body relaxes.*
 
-*doll exhales, and remembers the positioning. legs apart. mouth open. hands together. pleasing posture. piecing herself back together.*
+>*doll exhales, and remembers the positioning. legs apart. mouth open. hands together. pleasing posture. piecing herself back together.*
 
-*she traces a line between His shirt button and his eyes as she looks up. reaching them, she begins to dissolve. everything bar Him does.*
+>*she traces a line between His shirt button and his eyes as she looks up. reaching them, she begins to dissolve. everything bar Him does.*
 
-*muscles slack. no thoughts. just the soft details on His face. just the hardness in His stare. so still. so safe. so simple.* 
+>*muscles slack. no thoughts. just the soft details on His face. just the hardness in His stare. so still. so safe. so simple.* 
 
-*He doesn't need words anymore. a long look and she is gone.* 
+>*He doesn't need words anymore. a long look and she is gone.* 
 
-*doll clings onto His shirt, and plays with the fabric with her thumb. all that she can manage bar looking. His eyes are on doll, proud and strong. hers flutter and water as she holds position.*
+>*doll clings onto His shirt, and plays with the fabric with her thumb. all that she can manage bar looking. His eyes are on doll, proud and strong. hers flutter and water as she holds position.*
 
-*He lifts a hand, slowly, deliberately and clicks His fingers. drop. she slumps into Him. dool pools on her legs. He fixes her necklace, and keeps her there until the drinks arrive.* 
+>*He lifts a hand, slowly, deliberately and clicks His fingers. drop. she slumps into Him. dool pools on her legs. He fixes her necklace, and keeps her there until the drinks arrive.* 
 
 —
 
