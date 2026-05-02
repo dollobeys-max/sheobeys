@@ -2,9 +2,9 @@
 title: At First Blush
 date: 2025-10-13
 tags:
-  - Scene Report
+  - Scene
   - Protocol
-  - Power Exchange
+  - Maker
 ---
 
 **I'm standing underneath the staircase at Waverley Station, scanning the crowd filtering through the passenger gates. We've never met before, but I spot my doll immediately. I'd said I'd wait in the concourse, so I go unnoticed as I walk up behind and put my hand on its shoulder. Surprise and shock flash across the turning face, softening as my face comes into focus. I lean in, and whisper ten words: "follow on my left, eyes down, speak when spoken to". It obeys.**
