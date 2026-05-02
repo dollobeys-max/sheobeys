@@ -12,7 +12,7 @@ tags:
 
 *This writing explores the unique challenges of maintaining a dynamic at a distance, and also some tools to work through them, entirely from experience as an obedience-oriented sub.*
 
-## The yearning. Oh, the yearning.
+### *The yearning. Oh, the yearning.*
 
 *Kink can be a controlled way to experience intense emotions. I want to feel a little obsessed and in awe of my Dominant. I want to experience enforced helplessness. I want messy but intentional attachment. Doing that at a distance is playing BDSM on hard mode, but it is also very rewarding.*
 
@@ -22,7 +22,7 @@ tags:
 
 *I spend time recentring by diving into solo hobbies, and take a day per week for something fun just for me.*
 
-## Establish your boundaries
+### *Establish your boundaries*
 
 *This yearning is not just tough if you're experiencing it. It's also potentially draining for the person receiving it, if it's shared in an unboundaried way. Receiving a sexual text might make you feel empowered, or it might make you uncomfortable, like you are being used as a means to an end - or just sad you can't actually do anything about it.*
 
@@ -34,7 +34,7 @@ tags:
 
 *And no matter your role, knowing upfront what each person can give at a distance is more secure than loose and sporadic communication.*
 
-## So yes, communicate! (but also - how?)
+### *So yes, communicate! (but also - how?)*
 
 *Kink is a complicating factor in a distanced relationship. You’re having to maintain a power connection as well as an emotional one.*
 
@@ -44,7 +44,7 @@ tags:
 
 *With my Maker, doll follows tight and invisible restriction. doll has speech restrictions in person, and needs permission to do… basically everything. Though Maker has a great gauge of how doll is doing non-verbally, or even over basic texts, he's not a mind reader (doll doesn’t think). We have found journaling to be a rewarding way to maintain protocol while giving him access to doll's inner world. Over message, doll is allowed a simple vocabulary board, which maintains the tension of being limited and simplified. That is central to our Maker/doll way of relating to each other. It's a fun creative outlet, and figuring out those communication issues together is lovely.*
 
-## Incorporating rituals and tasks
+### *Incorporating rituals and tasks*
 
 *A lack of consistency is where many dynamics go to die, and consistency is just as key when you're not together. I attended a lovely Sunshine Club session on Rituals for Connection at the end of last year, which made me realise how central rituals are to my relationships. I'd define a ritual as a repeated action or behaviour which intentionally draws focus to the dynamic. They can help you find the same headspace, or reinforce something you are building together. In-person rituals are a powerful way to quickly reestablish the exchange after some time apart, and distanced rituals can be powerful for maintaining it. (They can also be done because they're hot.)*
 
@@ -52,7 +52,7 @@ tags:
 
 *To take it as the example, I find chastity to be a surprisingly rich and nuanced form of surrender, which contains within it mini-rituals which, when pointed out, reward me for obedience. Tasks which show my Dominant understands what I'm giving up, not just proof that I'm doing it, always hit me harder.*
 
-## The pressure to perform
+### *The pressure to perform*
 
 *Getting to submit in person is wonderful and intense, but there is undoubtedly pressure to be ‘on’ for both sides given the time in between seeing each other. Be realistic with expectations, and kind when you can't be your best D/s selves.*
 
@@ -60,11 +60,11 @@ tags:
 
 *Just as important is finding time to see each other where there's no expectation of obvious play. Discovering how you relate to each other outside of the excitement and mystery of a scene makes my dynamic deep and sustained.*
 
-## Have a date booked in
+### *Have a date booked in*
 
 *To fight angst, I ask that we plan the next time before I hop on that train. It doesn't have to be 100% confirmed, or even in the near future. But knowing there is a plan, and we intend to see each other soon is enough. It's no surprise I'm into the structure of BDSM relationships.*
 
-## Are you on the same page?
+### *Are you on the same page?*
 
 *My relationships have developed with a ‘follow what feels good’ ethos, giving time for feelings to develop without too much pressure. But there have naturally been conversations about longterm wants, and I don't avoid difficult conversations.*
 
