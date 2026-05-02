@@ -1,6 +1,10 @@
 ---
 title: Subspace
 date: 2026-04-28
+tags:
+  - Scene
+  - Protocol
+  - Mindplay
 ---
 
 *From the padded cell, I can hear the hum of the party upstairs. Laughter and movement. I'm not a part of it. Not anything right now. Just another pet being pulled around and used. When you first put the leather hood on me up there, I became aware of the eyes that might be looking. It doesn't matter who looks now.*
