@@ -8,7 +8,8 @@ date: 2026-01-12
 *I'm lucky to have strong connections which have flowed and thrived at a distance, but luck is enhanced by the work you put in (to steal a phrase my Master once used on me after receiving a gushy late-night text.)*
 
 *This writing explores the unique challenges of maintaining a dynamic at a distance, and also some tools to work through them, entirely from experience as an obedience-oriented sub.*
-The yearning. Oh, the yearning.*
+
+## The yearning. Oh, the yearning.
 
 *Kink can be a controlled way to experience intense emotions. I want to feel a little obsessed and in awe of my Dominant. I want to experience enforced helplessness. I want messy but intentional attachment. Doing that at a distance is playing BDSM on hard mode, but it is also very rewarding.*
 
@@ -60,7 +61,7 @@ The yearning. Oh, the yearning.*
 
 *To fight angst, I ask that we plan the next time before I hop on that train. It doesn't have to be 100% confirmed, or even in the near future. But knowing there is a plan, and we intend to see each other soon is enough. It's no surprise I'm into the structure of BDSM relationships.*
 
-## re you on the same page?
+## Are you on the same page?
 
 *My relationships have developed with a ‘follow what feels good’ ethos, giving time for feelings to develop without too much pressure. But there have naturally been conversations about longterm wants, and I don't avoid difficult conversations.*
 
