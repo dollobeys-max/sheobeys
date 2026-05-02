@@ -1,6 +1,9 @@
 ---
 title: Final Submission
 date: 2026-4-29
+tags:
+  - Scene
+  - Maker
 ---
 **The doorbell rang. My heart raced, the inside of my catsuit slick with sweat. Once I buzzed him in, I wouldn't have much time. 30 seconds at most to climb the stairs, and he'd be at my door. I hit the button and rushed through the steps I'd practiced. Kneel facing the door. Pull on the blindfold hood. Stuff the pack of cigarettes I'd bought for him into my mouth. Shit. I couldn't feel them on the rug. Where had I put them? The footsteps were getting closer and I wasn't ready! Just as he reached the door my hands settled on them, I shoved them in my mouth, and threw my hands behind my back.** 
 
