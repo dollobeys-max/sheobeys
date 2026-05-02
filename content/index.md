@@ -9,9 +9,9 @@ date: 2026-05-02
 
 2025-10-13 | [**At First Blush**](/at-first-blush)
 
-2026-01-12 | [*Power exchange at a medium distance*](/medium-distance)
+2026-01-12 | [*Medium Distance*](/medium-distance)
 
 2026-04-28 | [*Subspace*](/subspace)
 
-2026-04-29 | [**Final submission**](/final-submission)
+2026-04-29 | [**Final Submission**](/final-submission)
 
