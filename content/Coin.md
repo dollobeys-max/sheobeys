@@ -1,8 +1,8 @@
-*what do you think? has she earned an orgasm?* 
+**what do you think? has she earned an orgasm?** 
 
 *she did a very good job, Sir. but did anyone cum?* 
 
-*I came. but she didn’t make you cum.* 
+**I came. but she didn’t make you cum.** 
 
 *still, she did so good. maybe she should be able to this time.* 
 
@@ -14,7 +14,7 @@ she had followed what had been asked. it led her here, doused in oil, stood with
 
 it’s harder still when the toying is obvious, when she crawls into the trap willingly, shrinking herself without Him having to trick. 
 
-*let’s flip a coin.*
+**let’s flip a coin.**
 
 she has never coped with uncertainty, like those early weeks of not knowing what she would be to Him. it is simpler to know and not question.
 
@@ -22,15 +22,15 @@ she feels the cheap electric fan blowing cold air onto her exposed back. listeni
 
 it is nearly time to leave. it will be another night on public transport, moving away from them. no matter how the coin falls, she braces for a comedown. doll holds herself in place, desperately wanting to wrap herself around Him, or to lie on His lap while He speaks soft and slow.
 
-*what’s her call?*
+**what’s her call?**
 
 heads, she answers, hugging into herself. 
 
-*ach, hard luck doll*. 
+**ach, hard luck doll**. 
 
 *maybe W/we should give her another chance to prove herself?* 
 
-*hmm. how would she do that? okay, let’s give her five more minutes. if she makes you cum, she can have another flip.* 
+**hmm. how would she do that? okay, let’s give her five more minutes. if she makes you cum, she can have another flip.** 
 
 naked, she crawls into the trap.
 
@@ -44,17 +44,17 @@ silently, we stripped. doll could feel the rising warmth, watching Him watch us.
 
 it’s hard for her to remember much between being used and the call of *one minute left*. just a hazy blur of eagerness and puddles of drool. and after the coin toss, panting and licking and sad, desparate moans. 
 
-*that’s time up.* 
+**that’s time up.** 
 
 there’s a lump in her throat she can’t shake.
 
 *but she did do very well. should W/we give her a chance anyway?* 
 
-*she did do well. call it again, doll*. 
+**she did do well. call it again, doll**. 
 
 the words barely audible now. 
 
-*what was that?* 
+**what was that?** 
 
 heads, she repeats. 
 
@@ -62,32 +62,32 @@ He flips again, and holds His closed hand in front of her. she’s hit with a ru
 
 and then, His hand comes back into view, readying to wring an orgasm out of her head. 
 
-*five.* 
+**five.** 
 
 first slowing her down, the word drawn out and deliberate, five fingers waving in front of her. 
 
-*four.* 
+**four.** 
 
 the moment extended. being with Him. being with His slave. being so happy.
 
-*three*. 
+**three.** 
 
 the need building, contorted moans spilling out. bouncing knees and writhing hips. 
 
-*two.* 
+**two.** 
 
 a thumb placed in her mouth to stifle the thank yous and warbled, wordless begging.
 
-*one.* 
+**one.** 
 
 so close, so good.
 
-*zero.*
+**zero.**
 
 His closed fist, wrapped around nothing, and wrapped around her. watching all the muscles in His fingers tighten and shake like hands clasped around her throat.   
 held in place until it becomes painful. 
 
-*release*. 
+**release.** 
 
 vision and thoughts rushing back as she clings onto His leg. 
 
