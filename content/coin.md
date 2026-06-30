@@ -46,11 +46,11 @@ naked, she crawls into the trap.
 
 an hour before, W/we had been talking and cuddling after dinner. His slave was trying on a new dress He bought for her, and making sure her new cuffs worked with her socks. she looked beautiful, stood there fidgeting with the fabric. 
 
-then, *maybe you should both strip naked now.* so casually said.   
+then, **maybe you should both strip naked now.** so casually said.   
    
 silently, we stripped. doll could feel the rising warmth, watching Him watch us.
 
-*I’d like to make use of her before she has to leave. is that okay?* said so gently, but not said to doll. more warmth, as she dropped to the floor. He removed His belt without looking at her directly.
+**I’d like to make use of her before she has to leave. is that okay?** said so gently, but not said to doll. more warmth, as she dropped to the floor. He removed His belt without looking at her directly.
 
 it’s hard for her to remember much between being used and the call of *one minute left*. just a hazy blur of eagerness and puddles of drool. and after the coin toss, panting and licking and sad, desparate moans. 
 
@@ -105,6 +105,6 @@ back to the hum of the fan, the air in the room, the smell of tea and sweat and 
 
 it is twelve minutes until her train. wiping away tears and spit, she takes more deliberate breaths until she is ready to look up at Him again. she finds her scattered clothes, and reassembles herself into a human shape. 
 
-*I may have manipulated the coin flips a little there*, He says, pacing the room to find His jacket, ready to make His own journey home. 
+**I may have manipulated the coin flips a little there**, He says, pacing the room to find His jacket, ready to make His own journey home. 
 
 somehow, she is comforted.
