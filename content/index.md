@@ -17,3 +17,6 @@ description: Power, Protocol, and Play
 2026-04-29 | [**Final Submission**](/final-submission)
 
 2026-06-30 | [*Coin*](/coin)
+
+2026-07-09 | [*The Thrill of Being Manipulated*](/manipulated)
+
