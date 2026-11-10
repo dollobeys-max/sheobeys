@@ -17,7 +17,7 @@ tags:
 
 *a year later, extensive protocol has become the language W/we express care, love, humour and everything else through. O/our approach is eccentric. the restrictions are nearly always on, and close to hand even when they are loosened.*
 
-*the expectation of high protocol has been there [since the day W/we met](/at-first-blush). much of it looks like a lot (see: speaking in third person with ‘she’ or ‘doll’; non-verbally asking permission to speak, sit, use the bathroom, or consume food; never using His name; following, always on His left; keeping her fingers together as if she were wearing mitts).*
+*the expectation of high protocol has been there [since the day W\/we met](/at-first-blush). much of it looks like a lot (see: speaking in third person with ‘she’ or ‘doll’; non-verbally asking permission to speak, sit, use the bathroom, or consume food; never using His name; following, always on His left; keeping her fingers together as if she were wearing mitts).*
 
 *and it is a lot\! socially standing out was one of the first weapons He used to get her used to feeling a little not-human. every rule is there to encourage a state of dollhood, making her smaller and entirely reliant on Him even when W/we are in public spaces.*
 
