@@ -21,3 +21,6 @@ description: Power, Protocol, and Play
 2026-07-09 | [*The Thrill of Being Manipulated*](/manipulated)
 
 2026-07-28 | [*Valorised*](/valorised)
+
+2026-11-11 | [*Lifestyle Protocol*](/lifestyle-protocol)
+
